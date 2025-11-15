@@ -14,7 +14,8 @@ ________________________________________
 4.	Gain +1200 Instagram followers and +1500 TikTok followers organically and through paid campaigns.
 5.	Establish Oryah as a recognized modest fashion label in Egypt.
 ________________________________________
-🪄 Project Scope
+**Project Scope**
+
 The project includes a full 3-month marketing campaign consisting of:
 •	Developing a distinct brand identity (colors, tone, visual style).
 •	Creating engaging visual and storytelling content for Instagram & Facebook.
